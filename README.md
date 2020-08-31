@@ -8,3 +8,4 @@ Science wins 4
 Science wins 5
 Science saved my soul
 Science saved my life
+Science is my best friend
